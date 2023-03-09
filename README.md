@@ -1,0 +1,1 @@
+These are examples from discussiont in classes 2.5, 3, and 4
